@@ -1,6 +1,5 @@
 Jambo , im Elvis muoka ,,i loove coding.
-I'm a student at kca university studying software development 
-i love socializing and you can reach me on instagram -@muoka_19
+I'm a student at kca university studying software engineering you can reach me on instagram -@muoka_20 and Elvismuoka_20 on Twitter 
 
 
 <!---
